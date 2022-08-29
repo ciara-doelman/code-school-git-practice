@@ -1,1 +1,1 @@
-Lantern
+Plants are food
